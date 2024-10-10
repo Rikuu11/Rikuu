@@ -1,0 +1,2 @@
+# Rikuu
+Newbie
